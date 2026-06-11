@@ -1,4 +1,4 @@
-# J3K Technologies Delivers Biometric Access Control Systems in Duluth for Secure and Smart Workplace Access-
+# J3K Technologies Delivers Biometric Access Control Systems in Duluth for Secure and Smart Workplace Access
 
 [J3KTechnologies](https://www.j3ktech.com/) stands at the forefront of this transformation by delivering advanced security integration, helping businesses adopt smarter identity verification and next-generation access technologies. Organizations across industries are increasingly prioritizing enterprise biometric access solutions to protect sensitive environments and ensure only authorized individuals gain entry. 
 
